@@ -1,1 +1,1 @@
-​	O curso está bem legal, tanto o conteúdo quanto o site estão muito bons. Só acho que na parte prática podia ser um pouco mais devagar e explicativo, para não ter que ficar pausando o vídeo, mas fora isso está show!
+	O curso está bem legal, tanto o conteúdo quanto o site estão muito bons. 
